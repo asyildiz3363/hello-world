@@ -1,1 +1,1 @@
-# hello-world
+hey sana algo trade yapmak istediğimi söyledim
